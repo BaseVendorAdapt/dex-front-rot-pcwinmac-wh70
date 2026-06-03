@@ -1,4 +1,4 @@
-# 
+# Natif dex front-running bot flux de travail pour Mac OS | Meilleur dex front-running bot flux de travail pour PC Windows. Avec détection de rupture et API d'échange centralisé — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
